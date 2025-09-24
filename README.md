@@ -1,2 +1,2 @@
-# Akularohit9674.github.io
+# Akularohit.github.io
 Resume
